@@ -1,1 +1,1 @@
-# Exam1SO2
+# Exam1SO2Luis Enrique Contreras Vázquez
